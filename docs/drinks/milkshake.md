@@ -1,4 +1,5 @@
+# Ingredients
 Buy fresh milk
-Add ice cream
-Mix
+Add ice cream <br>
+Mix <br>
 Done
