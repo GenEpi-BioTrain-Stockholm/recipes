@@ -7,9 +7,10 @@
 - 8 medium flour tortillas
 - ca 350g shredded cheese
 - jalapeno (optional)
-- butter
+- butter, vegetatrian
 - corriander
 - lime
+- tomato
 
 ## Preparations
 
