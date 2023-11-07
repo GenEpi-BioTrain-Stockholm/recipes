@@ -1,5 +1,5 @@
 ### Ingredients
-(loskokende) aardappel 1 kg
+(loskokende) aardappel 2 kg
 
 ### The work
 1 kg (loskokende) aardappel
