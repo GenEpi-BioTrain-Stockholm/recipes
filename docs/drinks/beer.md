@@ -13,3 +13,7 @@ La cerveza (del latín cerevisĭa)​ es una bebida alcohólica, no destilada, d
 Öl är en dryck (i huvudsak med visst innehåll av alkohol) som har producerats i uppskattningsvis 7 000 år. Det första ölet skapades troligtvis då stärkelse- och sockerrika bröd blöttes och jäste i kontakt med vilda jästsvampar. Den moderna bryggeritekniken utvecklades i huvudsak i kloster under medeltiden och de största tekniska framstegen i industrialiserandet av bryggprocessen skedde under 1700- och 1800-talen. Bryggeriindustrin är idag en multinationell miljardindustri med Kina som största producentland.
 
 Ursprungligen tillverkades öl av jäst, vatten och stärkelsebaserade ingredienser, i huvudsak korn men även vete, ris och majs. Humle började användas under slutet av det första millenniet e.Kr och idag är humle en av huvudingredienserna i de allra flesta ölsorterna. Innan dess kryddades ölen ofta med frukter, bär, honung och olika kryddor, exempelvis pors, sumppors (skvattram), enbär och röllika. Andra ingredienser kan vara potatis, kryddor och socker. Det öl som tillverkas idag kan delas in i många olika typer, som lager, ale, veteöl och spontanjäst öl. Vissa öltyper är även regionspecifika och produceras utifrån de förutsättningar som finns i regionen. Processen kallas för bryggning. Alkohol uppstår naturligt vid jäsningen, men under 2000-talet har man även lyckats producera alkoholfritt öl med godtagbar kvalitet.
+
+## Polaco
+
+No se polaco
