@@ -8,3 +8,4 @@
 7. Add cool water and wait for about 3 minutes for the eggs to cool down.
 8. Remove the shell and add salt according to you taste!
 9. Bon appetit! 
+![](https://www.onceuponachef.com/images/2017/10/How-To-Make-Hard-Boiled-Eggs.jpg)
